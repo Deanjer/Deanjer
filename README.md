@@ -3,7 +3,7 @@
 ### I am Dean Blok.
 
 - 🔭 I’m always exited to learn. 
-- 🤔 I’m always want to help.
+- 🤔 I always want to help.
 - 💬 Ask me about anything.
 - 📫 How to reach me: Dean.blok@blokbrothers.nl.
 
